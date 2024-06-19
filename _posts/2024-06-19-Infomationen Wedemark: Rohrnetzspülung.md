@@ -1,7 +1,9 @@
 ---
 layout: post
-title: Informationen Wedemark Rohrnetzspülung
+title: Informationen Wedemark:Rohrnetzspülung
 ---
+Rohrnetzspülung 21.06.2024-01.07.2024
+
 Quelle: https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024
 
 Rohrnetzspülung ab 09.06.2024
