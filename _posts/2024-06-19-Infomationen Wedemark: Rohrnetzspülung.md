@@ -1,12 +1,14 @@
 ---
 layout: post
-title: Informationen Wedemark: Rohrnetzspülung
+title: Informationen Wedemark Rohrnetzspülung
 ---
 Quelle: https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024
 
 Rohrnetzspülung ab 09.06.2024
+
  
 In der Zeit vom 09.06.2024 - 17.07.2024 wird das Rohrnetz in einigen Teilen des Verbandsgebietes gespült. Dies betrifft die Ortschaften bzw. Teile von Altwarmbüchen, Bissendorf-Wietze, Bissendorf, Scherenbostel, Wiechendorf und Resse.
+
  
 Abweichungen sind durch unvorhergesehene Ereignisse möglich. Teilweise werden die Arbeiten in der Nacht durchgeführt. Während der Spülungen kommt es kurzfristig zum Ausfall der Wasserversorgung und es ist mit Druckschwankungen und vorübergehender Trübung des Trinkwassers zu rechnen. Die evtl. auftretenden Eintrübungen des Trinkwassers sind hygienisch unbedenklich, sodass diese keine Gesundheitsgefährdung bewirken. Wir bitten Sie daher, sich für den o. g. Zeitraum ausreichend mit Trinkwasser zu bevorraten. Zur Vermeidung von Schäden, druckabhängige Geräte wie Wasch- und Geschirrspülmaschinen, Gas- und Elektrothermen, bitte während der genannten Termine nicht betreiben. WC-Spülungen können weiter genutzt werden. Das Schließen der Hausanschlüsse ist nicht erforderlich.
 
