@@ -4,7 +4,7 @@ title: Informationen Wedemark:Rohrnetzspülung
 ---
 Rohrnetzspülung in Bissendorf-Wietze 21.06.2024-01.07.2024
 
-Quelle: [https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024]([url](https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024){:target="_blank"})
+Quelle: [https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024]([url](https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024))
 
 Rohrnetzspülung ab 09.06.2024
 
