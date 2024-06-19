@@ -2,7 +2,7 @@
 layout: post
 title: Informationen Wedemark
 ---
-Informationen des Wasserverband Nordhannover
+Quelle: https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024
 
 Rohrnetzspülung ab 09.06.2024
  
