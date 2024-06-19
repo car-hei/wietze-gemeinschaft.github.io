@@ -4,10 +4,10 @@ title: Informationen Wedemark:Rohrnetzspülung
 ---
 Rohrnetzspülung in Bissendorf-Wietze 21.06.2024-01.07.2024
 
-Quelle: [https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024]([url](https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024))
-Rohrnetzspülung ab 09.06.2024
+Quelle: [https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024](https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024)
 
-test 1: [https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024](https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024)
+
+Rohrnetzspülung ab 09.06.2024
  
 In der Zeit vom 09.06.2024 - 17.07.2024 wird das Rohrnetz in einigen Teilen des Verbandsgebietes gespült. Dies betrifft die Ortschaften bzw. Teile von Altwarmbüchen, Bissendorf-Wietze, Bissendorf, Scherenbostel, Wiechendorf und Resse.
 
