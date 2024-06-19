@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Informationen Wedemark: Rohrnetzspülung
+title: Informationen Wedemark Rohrnetzspülung
 ---
 Quelle: https://wvn.de/index.php/bekanntmachungen/rohrnetzspuelung-ab-09-06-2024
 
