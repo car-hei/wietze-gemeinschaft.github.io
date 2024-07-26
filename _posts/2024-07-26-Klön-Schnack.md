@@ -10,7 +10,7 @@ Es gibt keine Agenda, nur gute Gesellschaft und die Freiheit, über Themen zu sp
 
 Bringt gerne auch Freunde oder Nachbarn mit, die Freude an offenen und lebhaften Diskussionen haben.
 
-Wir freuen uns darauf, euch alle am 1. August 2024 ab 18 Uhr am Natelsheidesee begrüßen zu dürfen.
+Wir freuen uns darauf, euch alle am <b>1. August 2024 ab 18 Uhr am Natelsheidesee </b> begrüßen zu dürfen.
 
-Liebe Grüße
+Liebe Grüße  
 Die Wietze Gemeinschaft
