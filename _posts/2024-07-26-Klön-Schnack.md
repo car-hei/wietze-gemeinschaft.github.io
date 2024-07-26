@@ -2,7 +2,8 @@
 layout: post
 title: Klön-Schnack
 ---
-Liebe Follower, wir möchten euch herzlich zu einer entspannten Gesprächsrunde einladen.   
+Liebe Follower, wir möchten euch herzlich zu einer entspannten Gesprächsrunde einladen.
+
 Lasst uns in gemütlicher Atmosphäre zusammenkommen, um über die alltäglichen Sorgen, Probleme aber auch Erfahren zu plaudern.
 
 Es gibt keine Agenda, nur gute Gesellschaft und die Freiheit, über Themen zu sprechen, die uns gerade interessieren.
