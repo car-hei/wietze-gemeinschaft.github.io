@@ -13,4 +13,4 @@ Bringt gerne auch Freunde oder Nachbarn mit, die Freude an offenen und lebhaften
 Wir freuen uns darauf, euch alle am <b>1. August 2024 ab 18 Uhr am Natelsheidesee </b> begrüßen zu dürfen.
 
 Liebe Grüße  
-Die Wietze Gemeinschaft
+Die Wietze-Gemeinschaft
