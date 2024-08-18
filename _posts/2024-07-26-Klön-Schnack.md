@@ -2,7 +2,7 @@
 layout: post
 title: Klön-Schnack
 ---
-Liebe Follower, wir möchten euch herzlich zu einer entspannten Gesprächsrunde einladen.
+Liebe Bissendorf-Wietzer, wir möchten euch herzlich zu einer entspannten Gesprächsrunde einladen.
 
 Lasst uns in gemütlicher Atmosphäre zusammenkommen, um über die alltäglichen Sorgen, Probleme aber auch Erfahren zu plaudern.
 
