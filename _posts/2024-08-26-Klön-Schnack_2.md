@@ -19,8 +19,8 @@ Wir freuen uns darauf, Sie alle am
 begrüßen zu dürfen.  
   
 Der Vorstand  
-</br>
-</br>
+<br>
+<br>
 Noch schneller informiert sein über den Kanal der Wietze-Gemeinschaft auf WhatsApp:  
 
 https://whatsapp.com/channel/0029ValBJNM5fM5hYTRf152U
