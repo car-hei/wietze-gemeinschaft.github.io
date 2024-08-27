@@ -24,3 +24,5 @@ Der Vorstand
 Noch schneller informiert sein über den Kanal der Wietze-Gemeinschaft auf WhatsApp:  
 
 https://whatsapp.com/channel/0029ValBJNM5fM5hYTRf152U
+
+![QR-Code!](/assets/img/Kanal_der_Wietze-Gemeinschaft_WhatsApp.jpg "Kanal der Wietze-Gemeinschaft")
