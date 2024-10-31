@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Informationen Historische Arbeitsgemeinschaft Wedemark
+title: 'Informationen: Historische Arbeitsgemeinschaft Wedemark'
 ---
 Die Historische Arbeitsgemeinschaft Wedemark hat uns gebeten auf einen Termin aufmerksam zu machen, der auch Bissendorf-Wietzer interessieren könnte.  
 
