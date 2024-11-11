@@ -1,2 +1,2 @@
-# wietzegem.github.io
+# wietze-gemeinschaft.github.io
  
