@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 'Einladung Jahreshauptversammlung 2025, Grünkohlessen und Termine'
+title: 'Einladung Jahreshauptversammlung 2025 Grünkohlessen und Termine'
 ---
 
 Liebe Mitglieder,  
