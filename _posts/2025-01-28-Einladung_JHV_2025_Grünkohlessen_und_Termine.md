@@ -6,8 +6,8 @@ title: 'Einladung Jahreshauptversammlung 2025, Grünkohlessen und Termine'
 Liebe Mitglieder,  
 hiermit laden wir Sie zur Jahreshauptversammlung mit anschließendem Grünkohlessen am 28.02.2025 ein.
   
+<h2><p align="center">Einladung</p></h2>  
   
-<h2><p align="center">Einladung</p></h2>
 zur Jahreshauptversammlung der Wietze-Gemeinschaft
 am Freitag, den 28.02.2025, 19:00 Uhr,
 Gasthaus Bludau, Alter Postweg 8, 30900 Wedemark
