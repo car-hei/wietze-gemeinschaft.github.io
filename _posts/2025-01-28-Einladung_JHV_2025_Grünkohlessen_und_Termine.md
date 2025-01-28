@@ -18,7 +18,10 @@ Tagesordnung:
 3.	Bericht des Kassenwartes
 4.	Wahl einer Schriftführerin oder eines Schriftführers
 5.	Verschiedenes
-  
+
+gez. Heidrun Miesner  
+für den Vorstand  
+
   
   
 **Im Anschluss an die Jahreshauptversammlung am 28.02.2025 wollen wir um
@@ -26,7 +29,7 @@ Tagesordnung:
 
   
 Wir bitten hierzu um eine verbindliche Anmeldung zum Grünkohlessen unter Angabe des Speisewunsches (Grünkohl oder á la carte) **bis spätestens zum 23. Februar** 
-an den Vorstand unter   kontakt@wietzegemeinschaft.de   oder telefonisch.
+an den Vorstand unter   mailto:kontakt@wietzegemeinschaft.de   oder telefonisch.
   
   
 Wir freuen uns, Sie/Euch bei der einen oder auch beiden Veranstaltungen begrüßen zu können.
