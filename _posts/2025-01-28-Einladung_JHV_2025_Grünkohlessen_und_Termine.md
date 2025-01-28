@@ -21,27 +21,18 @@ Tagesordnung:
 
 gez. Heidrun Miesner  
 für den Vorstand  
-
-
-
-
-    
-
-
-
-      
+</br>
+</br>
 **Im Anschluss an die Jahreshauptversammlung am 28.02.2025 wollen wir um
 20.00 Uhr unser diesjähriges Grünkohlessen durchführen.**
-
   
 Wir bitten hierzu um eine verbindliche Anmeldung zum Grünkohlessen unter Angabe des Speisewunsches (Grünkohl oder á la carte) **bis spätestens zum 23. Februar** 
-an den Vorstand unter   mailto:kontakt@wietzegemeinschaft.de   oder telefonisch.
-  
+an den Vorstand unter (mailto:kontakt@wietzegemeinschaft.de)   oder telefonisch.
   
 Wir freuen uns, Sie/Euch bei der einen oder auch beiden Veranstaltungen begrüßen zu können.
   
-  
-  
+</br>
+</br>
 <h2><p align="center">Weitere Termine in 2025</p></h2>
   
 Damit Sie sich /Ihr euch schon einmal die weiteren Termine für 2025 zu Veranstaltungen in den Kalender eintragen könnt, hier eine Übersicht :
