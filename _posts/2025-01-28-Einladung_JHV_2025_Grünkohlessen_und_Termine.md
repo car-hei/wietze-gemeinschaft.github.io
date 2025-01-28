@@ -21,10 +21,15 @@ Tagesordnung:
 
 gez. Heidrun Miesner  
 für den Vorstand  
-/p
-/p  
-/p  
-  
+
+
+
+
+    
+
+
+
+      
 **Im Anschluss an die Jahreshauptversammlung am 28.02.2025 wollen wir um
 20.00 Uhr unser diesjähriges Grünkohlessen durchführen.**
 
