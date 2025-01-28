@@ -6,7 +6,7 @@ Liebe Mitglieder,
 hiermit laden wir Sie zur Jahreshauptversammlung mit anschließendem Grünkohlessen am 28.02.2025 ein.  
   
 <h2><p align="center">Einladung</p></h2>  
-
+  
 zur Jahreshauptversammlung der Wietze-Gemeinschaft
 am Freitag, den 28.02.2025, 19:00 Uhr,
 Gasthaus Bludau, Alter Postweg 8, 30900 Wedemark
@@ -17,7 +17,7 @@ Tagesordnung:
 3.	Bericht des Kassenwartes
 4.	Wahl einer Schriftführerin oder eines Schriftführers
 5.	Verschiedenes
-
+  
 gez. Heidrun Miesner  
 für den Vorstand  
 <br/>
@@ -38,11 +38,9 @@ Damit Sie sich /Ihr euch schon einmal die weiteren Termine für 2025 zu Veransta
   
 + **20.06.2025	Spargel- und Matjesessen** um 19.00 Uhr bei Bludau in Wennebostel
 
-
 + **Termin noch offen**  Für das bereits für 2024 angedachte, aber nicht durchgeführte Helferfest zum letztjährigen Hochwasser in Kooperation mit dem Ortsrat. 
 Hier wird es eine Kombination mit unserem Sommerfest geben.
-  
-  
+ 
 + **14.09.2025	Fahrradtour** mit Frühstück um 10.00 Uhr
 
 + **13.12.2025 	Weihnachtsmarkt** 15.00 - 20.00 Uhr 
