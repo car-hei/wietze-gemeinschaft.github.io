@@ -21,11 +21,11 @@ Tagesordnung:
   
   
   
-Im Anschluss an die Jahreshauptversammlung am 28.02.2025 wollen wir um
-20.00 Uhr unser diesjähriges Grünkohlessen durchführen.
+**Im Anschluss an die Jahreshauptversammlung am 28.02.2025 wollen wir um
+20.00 Uhr unser diesjähriges Grünkohlessen durchführen.**
 
   
-Wir bitten hierzu um eine verbindliche Anmeldung zum Grünkohlessen unter Angabe des Speisewunsches (Grünkohl oder á la carte) bis spätestens zum 23. Februar 
+Wir bitten hierzu um eine verbindliche Anmeldung zum Grünkohlessen unter Angabe des Speisewunsches (Grünkohl oder á la carte) **bis spätestens zum 23. Februar** 
 an den Vorstand unter   kontakt@wietzegemeinschaft.de   oder telefonisch.
   
   
@@ -33,17 +33,17 @@ Wir freuen uns, Sie/Euch bei der einen oder auch beiden Veranstaltungen begrüß
   
   
   
-Weitere Termine in 2025
+<h2><p align="center">Weitere Termine in 2025</p></h2>
   
 Damit Sie sich /Ihr euch schon einmal die weiteren Termine für 2025 zu Veranstaltungen in den Kalender eintragen könnt, hier eine Übersicht :
   
-- 20.06.2025	Spargel- und Matjesessen um 19.00 Uhr bei Bludau in Wennebostel
+- **20.06.2025	Spargel- und Matjesessen** um 19.00 Uhr bei Bludau in Wennebostel
 
 
-- Termin noch offen  Fürdas bereits für 2024 angedachte, aber nicht durchgeführte Helferfest zum letztjährigen Hochwasser in Kooperation mit dem Ortsrat. 
+- **Termin noch offen**  Für das bereits für 2024 angedachte, aber nicht durchgeführte Helferfest zum letztjährigen Hochwasser in Kooperation mit dem Ortsrat. 
 Hier wird es eine Kombination mit unserem Sommerfest geben.
   
   
-- 14.09.2025	Fahrradtour mit Frühstück um 10.00 Uhr
+- **14.09.2025	Fahrradtour** mit Frühstück um 10.00 Uhr
 
-- 13.12.2025 	Weihnachtsmarkt 15.00 - 20.00 Uhr 
+- **13.12.2025 	Weihnachtsmarkt** 15.00 - 20.00 Uhr 
